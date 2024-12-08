@@ -1,0 +1,7 @@
+- 👋 Xin chào,tôi là Tuấn Khoa
+- 👀 Tôi quan tâm và học hỏi về code 
+- 🌱 Hiện tại tôi đang học ở trường và học hỏi từ mỗi người
+- 💞️ Tôi đang tìm kiếm sự hợp tác về ...
+- 📫 Cách liên lạc với tôi:
+- https://www.instagram.com/tuankhoa.11/
+- 😄 Đại từ: Bí ẩn.
